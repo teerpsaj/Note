@@ -14,7 +14,7 @@
 
            <strong>agar kuj deina aa te ehna questions de answer dei theek  </strong>
            1st: unique idea for the website?
-           2nd: je kisse website ch letter nu modify(all letters nu copy te likh ke design karke website ch add karna   ) kitta te sahi laggega ja nahi?
+           2nd: je website ch letters nu modify(all letters nu copy te likh ke design karke website ch add karna   ) kitta te sahi laggega ja nahi?
           
 
         </p>
