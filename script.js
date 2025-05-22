@@ -10,7 +10,7 @@
            jo tu pehla chocolate box dita c usdi kaafi tension je tu next time fir kuj de ditta te depression hi ho jaana theek.
            please na kuj devi okay.
            mera vi chocolate wala hisaab pending ch os nu v clear karna hi jo ke tu pehla nahi karan ditta c.
-           tu buss hello hi de de
+           tu bus hello hi keha de kar bus tera aape saare hisaab clear hi jaan aa theek
 
            <strong>agar kuj deina aa te ehna questions de answer dei theek  </strong>
            1st: unique idea for the website?
